@@ -1,1 +1,0 @@
-# wallpaper-and-curtains-store
